@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...C,C++
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...anything
-- 📫 How to reach me: ...[Hafsa Binte Hamid]
+- 📫 How to reach me: ...Facebook
 - 😄 Pronouns: ...her
 - ⚡ Fun fact: ...I am a sleepy girl
 -->
